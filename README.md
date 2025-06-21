@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning . game coding..
 - 💞️ I’m looking to collaborate on .. game.
 - 📫 How to reach me .. EUDELL x5.
-- 😄 Pronouns: ..she.
+- 😄 Pronouns: ..he
 - ⚡ Fun fact: .. games.
 
 <!---
